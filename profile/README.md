@@ -13,9 +13,3 @@
      \   \ ;                       '--'                '---'                                  ---`-'  `--''       
       '---"                                                                                                       
 ```
-
-## Executives
-<b>이현석</b> • worksmoothcompany@gmail.com  
-<b>김관식</b> • gwansikk@icloud.com
-
-**© WorkSmooth.**
